@@ -1,2 +1,5 @@
 # hello-world
-first time shirt
+
+Rada niggas
+
+Master of niggers here, Born in India, Raised in th epoorest country in the world, Malawi.
